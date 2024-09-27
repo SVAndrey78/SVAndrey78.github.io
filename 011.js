@@ -1,0 +1,1 @@
+https://store-cdn.zepp.com/custom_user_app/20240824/IxzwGgBCkjZhXZepXKZUScQIjjOzzPnZ/1057335-ASM_04-1.0-20240823223922.zab
